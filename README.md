@@ -2,3 +2,5 @@
  -Pavê
  -Strogonoff
  -Bola de Cenoura
+ -Pudim
+ -Arroz
