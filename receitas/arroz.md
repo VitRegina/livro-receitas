@@ -9,7 +9,7 @@ meia cebola pequena picada
 
 ###Modo de preparo
 
-Em uma panela, aqueaa o oleo e refogue a cebola e o alho ate que estejam transparentes.
+Em uma panela, aqueça o oleo e refogue a cebola e o alho ate que estejam transparentes.
 
 Junte o arroz e refogue bem ate ficar brilhante.
 
